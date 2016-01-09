@@ -1,1 +1,1 @@
-for my reference only.  No cheating!
+This is for my reference only.  No cheating!
